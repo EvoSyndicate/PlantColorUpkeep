@@ -11,11 +11,16 @@
 # List of color-changing plants
 
 ## witnessed
-dandelion
-Indian paintbrush - process, poop on privet
+* dandelion
+* * suspected process - burning pomegranate wood
+
+* Indian paintbrush - process, poop on privet
 
 ###
 day flower - process, buried salmon
+
+##
+butter cup - buried tuna
 
 ## suspected 
 partridge pea
