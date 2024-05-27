@@ -20,7 +20,7 @@
 day flower - process, buried salmon
 
 ##
-butter cup - buried tuna
+buttercup - buried tuna
 
 ## suspected 
 partridge pea
@@ -29,6 +29,9 @@ suspected process, torilis in water
 ## lantana
 fineflower gilia in standing water
 
+## Crate Mertle
+shake it and decorate it
+mushrooms that were blue on the inside I put on my teeth grew nearby
 
 ----
 
