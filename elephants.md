@@ -8,3 +8,5 @@ Sometimes you can point with a single dot, you should be able to feel this.
 Be careful around elephant kids.
 
 Sometimes an elephant does a double yield, you have to match your pupils to their horns.
+
+Some of the stuff in the scenery is scanning the water horizon with your ears.  Or trying to match your forehead with their forehead, this is known as a "puck".
